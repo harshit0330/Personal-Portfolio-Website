@@ -42,7 +42,7 @@ Feel free to reach out if you'd like to collaborate or just say hello! 😊
 
 ---
 
-
+https://github.com/user-attachments/assets/408061ac-4b21-4f90-accc-12a6bce215a4
 
 ### 🔥 Thank you for visiting my portfolio repository!
 
